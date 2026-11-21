@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Farjad18
-- 👀 I’m interested in ... Travelling, Exploring, Networking, Dancing, Content creation, Photography.
+- 👀 I’m interested in ... Travelling, Exploring, Networking,Content creation, Photography.
 - 🌱 I’m currently learning ... Bachelors of science in Computer Science
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ...
